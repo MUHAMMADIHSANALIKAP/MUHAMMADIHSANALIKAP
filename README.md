@@ -15,12 +15,3 @@ My Cellphone number is +92 (0) 321 3899048.
 Its all about me.
 Regards,
 MUHAMMAD IHSAN ALI.
-
-
-
-  
-
-<!---
-MUHAMMADIHSANALIKAP/MUHAMMADIHSANALIKAP is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
