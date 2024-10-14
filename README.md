@@ -11,13 +11,7 @@ I have 3 kids "UMMEHANI My Eldest Daughter, MUHAMMAD ABSAR ALI, MY ELDER SON AND
 I worked 16 years with 2 Top Oil Marketing Companies in Pakistan HASCOL PETROLEUM and LaGuardia Group of Companies.
 Now I belong to a Royal Family here in Pakistan owning Mango Farms and My Grand Parents were the Pioneers in Pakistan who did Mango Farming.
 Currently I am also doing Mango Farming as well as Working as a Developer with Microsoft Azure and GitHub by utilizing my Master in Business Management and Information Technology.
-Its all about me. 
-
-
-
-  
-
-<!---
-MUHAMMADIHSANALIKAP/MUHAMMADIHSANALIKAP is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+My Cellphone number is +92 (0) 321 3899048.
+Its all about me.
+Regards,
+MUHAMMAD IHSAN ALI.
